@@ -44,7 +44,7 @@ Let’s co‑create something that scales to millions of users and stands the te
 ## 📫 Connect with Me
 - ✉️ **Email**: [mridulsingh654321@gmail.com](mailto:mridulsingh654321@gmail.com)  
 - 🌐 **Letterboxd**: [TheCinephile0](https://letterboxd.com/TheCinephile0/) (Let’s chat movies!)  
-- 🔗 **LinkedIn**: [linkedin.com/in/mridul-singh](https://linkedin.com/in/mridul-singh)
+- 🔗 **LinkedIn**: [linkedin.com/in/mridul-singh](https://www.linkedin.com/in/mridul-s-0099232b6/)
 
 ---
 
